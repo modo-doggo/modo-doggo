@@ -1,6 +1,8 @@
 - 👋 Hi, I’m @modo-doggo
 - 📫 How to reach me 
-Gmail-dogewolf010@gmail.com   Discord-NA
+Gmail-dogewolf010@gmail.com   
+
+Discord-NA
 
 
 <!---
